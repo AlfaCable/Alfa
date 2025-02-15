@@ -2,6 +2,10 @@
 
 The 2025 Scotties Tournament of Hearts, Canada’s premier women’s curling championship, is set to deliver another thrilling competition featuring the nation’s top curling teams. Fans from across the country will tune in to witness elite-level curling as the best athletes battle for national glory.
 
+[**👉⏩🎥🅻🅸🆅🅴🔴▶️ CLICK HERE TO WATCH LIVE ONLINE**](https://curling.fanfanatics.live/?refd_by=a2znow)
+
+[**👉⏩🎥🅻🅸🆅🅴🔴▶️ CLICK HERE TO WATCH LIVE ONLINE**](https://curling.fanfanatics.live/?refd_by=a2znow)
+
 This prestigious event will take place from February 14 to 23, 2025, at the Fort Williams Gardens in Thunder Bay, Ontario. With a mix of seasoned champions and emerging talents, the tournament promises a spectacular display of skill, strategy, and determination.
 
 When is the 2025 Scotties Tournament of Hearts?
